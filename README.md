@@ -1,1 +1,1 @@
-# Super Dolores 🏪💬💰🚕
+# Super Dolores 
